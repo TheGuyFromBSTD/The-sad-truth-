@@ -1,4 +1,4 @@
-# The-sad-truth
+ The-sad-truth
 
 All my life ive been pretending to be some online addicted loser to get people of my back and escape the horrible reality... 
 
@@ -27,5 +27,11 @@ so i prob wont be here long anymore...
 i cant really thank anyone since this is on the internet and i cant give names for obvious reasons...
 
 but there is like 3 people in my life that actually made me feel happy
+
+all i really want is to be in peace chilling...
+
+if i could i would be living on some kind of farm caring for my animals
+
+but i dont and never will have the funds for that even if i would get a job and work my ass off
 
 so if i suddenly dont go online anymore dont worry im in a better place...
