@@ -34,4 +34,6 @@ if i could i would be living on some kind of farm caring for my animals
 
 but i dont and never will have the funds for that even if i would get a job and work my ass off
 
+i really spend 20 years being someone thats not even me...
+
 so if i suddenly dont go online anymore dont worry im in a better place...
